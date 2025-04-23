@@ -1,1 +1,1 @@
-Me aceptarian en la legion???
+Me aceptarian en la legion??? plz
